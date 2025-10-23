@@ -1,0 +1,2 @@
+# Inforamtyka-NWM
+HELLO
